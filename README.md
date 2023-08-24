@@ -1,4 +1,4 @@
-# Welcome to the Game-Changing School Chromebook Exploit
+# Welcome to the School Chromebook Exploit
 
 Greetings, tech enthusiasts and innovators! 🚀
 
